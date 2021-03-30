@@ -1,0 +1,1 @@
+Tour Guide van Krasnodar, dat is een zeer mooie stad in rusland met ongeveer 899.541 inwoners
